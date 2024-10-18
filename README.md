@@ -35,6 +35,7 @@ Shortened history of the planet ( planet alias " Supernova planet ". initial nam
 
 in previous ( still not sure the authentic original location, maybe " purple star solar system " or " violet star solar system " due " universe disaster matters " alias " Supernova " ), the planet was original residence " blue star Solar system " ( code: A0V, sample reference: https://en.wikipedia.org/wiki/Color_index ). somehow, the planet suffered the Supernova ( universe disaster ) and then the planet become enter into the yellow star solar system. once upon a time, the planet was accidentally get hit ( alias " big bang " ) by another planet. and then the nature disaster ( massive flood ) was happened. suddenly, somehow the planet was went out from the yellow star solar system ( around 10 till 100 years ago. 10 till 100 years without " star " ). and then the planet was entered ( the status right now ) into the yellow star solar system again. the peoples ( the peoples who original residence galaxy of Supernova planet) are standing still wait for the planet come back/return into the " blue star solar system " again nor " authentic original star solar system " until now.
 
+
 the end.,-
 ____
 -
